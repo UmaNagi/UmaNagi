@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @UmaNagi
-- 👀 I’m interested in ... antimods for vrchat for safety reasons(usually because im a target to a community)
+- 👀 I’m interested in ... making more friends
 - 🌱 I’m currently learning ... nothing yet
-- 💞️ I’m looking to collaborate on ... how to make my own anti mod for vrchat so i dont have to lag everywhere
-- 📫 How to reach me ... discord.gg/lily-lodge
+- 💞️ I’m looking to collaborate on ... getting my discord to be bigger
+- 📫 How to reach me ... https://discord.gg/greeneyes
 
 <!---
 UmaNagi/UmaNagi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
