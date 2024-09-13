@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @UmaNagi
-- 👀 I’m interested in ... making more friends
+- 👋 Hi, I’m @UmaNagi also know as LoppyDaCutie
+- 👀 I’m interested in making quality friends who talk in positive speeches about others and there own communities
 - 🌱 I’m currently learning ... nothing yet
-- 💞️ I’m looking to collaborate on ... getting my discord to be bigger
-- 📫 How to reach me ... https://discord.gg/greeneyes
+- 💞️ I’m looking to work with others
+- 📫 How to reach me ... https://discord.gg/loppy
 
 <!---
 UmaNagi/UmaNagi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
