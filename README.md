@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UmaNagi also know as Loppy The Bunny
+- 👋 Hi, I’m @UmaNagi also known as Loppy The Bunny
 - 👀 I’m interested in making quality friends who talk in positive speeches about others and there own communities
 - 🌱 I’m currently learning ... nothing yet
 - 💞️ I’m looking to work with others
